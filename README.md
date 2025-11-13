@@ -1,4 +1,5 @@
-![Gx0SKV-aMAAjb7T](https://github.com/user-attachments/assets/4eb1e203-faea-485b-ad23-52f59a75ed1d)
+![DozerParty](https://github.com/user-attachments/assets/fe386830-989c-419f-8993-7fa2c7ae1376)
+
 </p>
 <p align="center">
   <i>deivy /  brandon  /  ten</i> 
@@ -8,5 +9,7 @@
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=showvembert&color=000000&style=plastic&label=higuys">
+<img src="https://komarev.com/ghpvc/?username=showvembert&color=FDDA0D&style=plastic&label=higuys">
 </p>
+
+why is it sideways what the fuck dude ugh
