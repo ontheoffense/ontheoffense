@@ -1,15 +1,16 @@
-![DozerParty](https://github.com/user-attachments/assets/fe386830-989c-419f-8993-7fa2c7ae1376)
+![gogogo](https://github.com/user-attachments/assets/93a85070-cfa0-45ee-88c0-24ceb17cfc6f)
+
 
 </p>
 <p align="center">
-  <i>deivy /  brandon  /  ten</i> 
+  <i>ten /  ren  /  tori</i> 
 </p>
 <p align="center">
 <p align="center">
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=showvembert&color=FDDA0D&style=plastic&label=higuys">
+<img src="https://komarev.com/ghpvc/?username=ontheoffense&color=FDDA0D&style=plastic&label=sinners">
 </p>
 
-why is it sideways what the fuck dude ugh
+
