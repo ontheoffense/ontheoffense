@@ -3,7 +3,7 @@
 
 </p>
 <p align="center">
-  <i>ten /  ren  /  tori</i> 
+  <i>ten /  mid  /  tori</i> 
 </p>
 <p align="center">
 <p align="center">
